@@ -1,2 +1,2 @@
-Meu perfil como desenvolvedor esta nos mes projetos
+Meu perfil como desenvolvedor esta nos meus projetos
 
